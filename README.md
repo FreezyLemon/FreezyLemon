@@ -1,3 +1,3 @@
 he/him
 
-Reach me on Discord: FreezyLemon#0001
+Reach me on Discord: FreezyLemon#3803
