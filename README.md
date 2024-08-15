@@ -1,3 +1,3 @@
 he/him
 
-Reach me on Discord: @freezylemon
+Reach me via mail or on Discord: @freezylemon
